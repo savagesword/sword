@@ -1,2 +1,2 @@
 # sword
-Hi just a novice checking thos out :)
+Hi just a novice checking this out :)
